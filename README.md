@@ -3,7 +3,7 @@
 - 🌱 Atualmente estou aprendendo Alura Star 
 - 💞️ Estou procurando colaborar em aulas
 - 📫 00001124114579SP@al.educacao.sp.gov.br
-- 😄 Ela dela
+- 😄 Gosto de comer 
 - ⚡ Gosto de cozinhar 
 
 <!---
